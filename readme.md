@@ -1,6 +1,7 @@
 # new softwares since 2025/4/21
 
 # old softwares before 2025/4/20
+https://t.me/Apple_Sharing_stws
 
 Apple Patched Stws Channel, [2025/4/6 13:05]
 OpenSource Stw：Nugget.
