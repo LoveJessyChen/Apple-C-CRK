@@ -1,4 +1,9 @@
 # new softwares since 2025/4/21
+## crossover muti-version activation:
+https://akirabox.com/jar3XVw4gG2d/file
+
+## ipcc for 16 pro/16pm - 18.5 b3 64.0：
+https://www.123912.com/s/X5tA-e8ewh
 
 # old softwares before 2025/4/20
 https://t.me/Apple_Sharing_stws
