@@ -1,4 +1,9 @@
+# New Version to disable Mac Security Checking （2025.4.24）：
+https://github.com/LoveJessyChen/Apple-Configs/blob/main/README.md
+
 # new softwares since 2025/4/21
+
+
 ## crossover muti-version activation:
 https://akirabox.com/jar3XVw4gG2d/file
 
