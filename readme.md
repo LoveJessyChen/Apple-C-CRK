@@ -4,6 +4,9 @@ https://github.com/LoveJessyChen/Apple-Configs/blob/main/README.md
 # new softwares since 2025/4/21
 https://t.me/Apple_Sharing_stws
 
+## Our discussion group of discord：
+https://discord.gg/Qq6Qgq6K
+
 ## crossover muti-version activation:
 https://akirabox.com/jar3XVw4gG2d/file
 
